@@ -20,4 +20,4 @@ Il est 12h40.
 
 Il est 12h41.
 
-Je suis Tonmou, jeune homme passionné d'informatique, de jeux-vidéo, mais avant tout, humain.
+Je suis Tonmou, jeune homme passionné d'informatique, de jeux-vidéo, mais avant tout, je suis vivant et humain, et je suis conscient de cette chance.
