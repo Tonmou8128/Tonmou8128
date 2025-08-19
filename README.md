@@ -9,3 +9,5 @@ Adresse: Vous suivez les panneaux jusqu'à la voie lactée. Puis vous prenez la 
 
 Il est 12h26, je commence à avoir faim en vrai.
 
+Avant d'aller manger, je vais vous conter une histoire.
+Il était une fois un petit enfant, qui vivait heureux avec ses parents. Son papa était un scientifique très connu et très respecté. Mais un jour, son papa découvrit que le lieu qui abritait toute la population était vivant. Le peuple, avide de pouvoir, décida d'exiler la famille du petit garçon car son papa ne voulait pas leur donner ce secret. Un homme horrible, et puissant, qui c'est accaparé le contrôle sur la population par la manipulation qu'il a affamé et réduit en pauvreté, est allé chercher la famille pour forcer le papa à lui donner son secret. Le petit garçon a réussi à s'échapper, et retourne désormais au lieu de son exil, où des amis, dont sa meilleure amie avec laquelle il a passé des journées entières à s'amuser, l'attendent. Sauf que ce petit garçon est traqué par la population.
