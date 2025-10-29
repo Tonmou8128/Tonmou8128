@@ -1,3 +1,3 @@
-![](assets/titre.png)
+![](titre.png)
 
 ## Moi
