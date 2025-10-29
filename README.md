@@ -27,4 +27,4 @@ On va faire une tier-list tiens.
 | *Bon* | Python - JavaScript |
 | *Vzy ça va encore* | HTML - PHP |
 | *Je connais mais pas + que ça* | CSS |
-| *J'ai pas tenu 2 minutes* | Arduino mdr |
+| *J'ai pas tenu 2 minutes* | Arduino :') |
