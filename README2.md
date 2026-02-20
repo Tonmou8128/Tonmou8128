@@ -16,7 +16,7 @@ Je code beaucoup autour du jeu Minecraft Bedrock, permettant la personnalisation
 
 ## 🔗 - Contact & liens
 
-[![](https://img.shields.io/badge/tonmou\__-5865F2?style=for-the-badge&logo=discord&logoColor=white)](jsp) 
+,![](https://img.shields.io/badge/tonmou\__-5865F2?style=for-the-badge&logo=discord&logoColor=white)
 
 Clique pour y accéder:
 
