@@ -10,7 +10,7 @@ Je code beaucoup autour du jeu Minecraft Bedrock, permettant la personnalisation
 
 ## 🔗 Contact & liens
 
-- **Discord:** `tonmou_`
+- ☎️ **Discord:** `tonmou_`
 
 - 🗿 **Site web:** https://tonmou8128.github.io/
 
